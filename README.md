@@ -1,6 +1,6 @@
 [![make.fun](https://make.fun/badge/news-image-20261122.svg)](https://make.fun/c/news-image-20261122)
-[![rank](https://make.fun/badge/news-image-20261122/lucky-coyote-10/news-image-20261122/rank.svg)](https://make.fun/c/news-image-20261122)
-[![reward](https://make.fun/badge/news-image-20261122/lucky-coyote-10/news-image-20261122/reward.svg)](https://make.fun/c/news-image-20261122)
+[![rank](https://make.fun/badge/news-image-20261122/Tigapandax/news-image-20261122-akun1/rank.svg)](https://make.fun/c/news-image-20261122)
+[![reward](https://make.fun/badge/news-image-20261122/Tigapandax/news-image-20261122-akun1/reward.svg)](https://make.fun/c/news-image-20261122)
 
 # The World in One Page — 22 November 2026
 
